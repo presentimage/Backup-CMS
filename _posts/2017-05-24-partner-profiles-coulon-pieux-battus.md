@@ -1,0 +1,15 @@
+---
+ID: 1775
+post_title: 'Partner Profiles: Sarl Coulon﻿﻿﻿ Pieux Battus'
+author: admin
+post_excerpt: >
+  Sarl Coulon Pieux Battus, the exclusive
+  Caribbean agent for DIP piles
+  manufactured by TRM of Austria
+layout: post
+permalink: >
+  http://cms-sl.com/partner-profiles-coulon-pieux-battus/
+published: true
+post_date: 2017-05-24 17:25:22
+---
+<span><img alt="" style="width: 400px" src="//cms-sl.com/cms/wp-content/uploads/2017/03/cmshd1.png" width="400" height="109" data-attachment-id="1500" scale="0"/></span><span><img alt="" style="width: 278px" src="//cms-sl.com/cms/wp-content/uploads/2017/03/cmshd2.png" width="278" height="75" data-attachment-id="1501" scale="0"/></span><span><img alt="" style="width: 363px;" src="//cms-sl.com/cms/wp-content/uploads/2017/03/cmshd3.png" width="364" height="99" data-attachment-id="1502" scale="0"/></span><span><img alt="" style="width: 600px;" src="//cms-sl.com/cms/wp-content/uploads/2017/05/CPB2.png" width="600" height="250" data-attachment-id="1776" scale="0"/></span><h1 style="color: rgb(230, 14, 14);"><span></span><span></span></h1><h1 style="color: rgb(230, 14, 14); margin-bottom: 0px !important;">Partner Profiles: COULONPIEUX BATTUS SARL</h1><p>​</p><p>COULON PIEUX BATTUS SARL is a building materials supplier in&nbsp;Chalon-sur-Saône, France and the exclusive Caribbean agent for DIP piles, manufactured by TRM of Austria.</p><p>The company principal Jerome Coulon is presently the&nbsp;Product Manager, Ductile Iron Piles, Duktus S.A. &nbsp;with a&nbsp;Civil Engineer Degree, specializing in Geotechnical Engineering.</p><p>​</p><p>For further information, go to:&nbsp;<a href="http://www.pieux-battus.fr/en/" style="color: rgb(44, 143, 244);"><span>COULON</span><span> PIEUX BATTUS SARL</span></a></p><a title="PartnerProfile: CMI" href="http://cms-sl.com/partner-profiles-cmi-2" rel="bookmark">the exclusive Caribbean agent for DIP</a><a title="PartnerProfile: CMI" href="http://cms-sl.com/partner-profiles-cmi-2" rel="bookmark">the exclusive Caribbean agent for DIP piles manufactured by TRM of Austria</a><p style="margin-bottom: 30px !important; color: rgb(1, 46, 99);"><span></span><span></span></p><span><img alt="" style="width: 531px" src="//cms-sl.com/cms/wp-content/uploads/2017/05/cpbsite.jpg" width="531" height="980" data-attachment-id="1780" scale="0"/></span><p style="margin-bottom: 0px !important;"> </p><a href="http://cms-sl.com/contact-form"><span><span data-tve-custom-colour="23247780"></span></span><span data-tve-custom-colour="56987616">CONTACT US TODAY</span></a><p data-web-font="Arial, Helvetica, sans-serif" style="font-size: 14px; font-family: Arial, Helvetica, sans-serif; color: rgb(44, 143, 244);">Copyright © 2019, CMS Limited. All Rights Reserved.website by:<a href="http://presentimage.com">presentimage</a></p>
